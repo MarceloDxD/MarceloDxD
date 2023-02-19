@@ -4,7 +4,7 @@
 - 🐱‍💻 Atualmente estou focado em desenvolvimento (web);
 - 🐱‍👤 Por enquanto apenas projetos pessoais;
 - 🐱‍🐉 Casualmente criar e compartilhar conteúdos; 
-- 🐱‍🚀 Mais coisas viram com o tempo.
+- 🐱‍🚀 Mais coisas surgirão com o tempo.
 
 ##
 
